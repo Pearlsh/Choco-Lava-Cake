@@ -1,0 +1,2 @@
+First add 3 cups of maida in a bowl. Now add 1 cup cocoa powder, sugar and mix it properly.After mixing the dry ingridients add 2 egg and milk and make a fine batter, make sure you have no lumps.
+Now melt a 100 gms dark chocolate in a microwave safe bowl. let it cool. after it gets cooled make small balls out of it. now grease the silicone mould with oil and add batter and the chocolate ball. let the cake cook until it is fully cooked from outside and liquidy from inside.
